@@ -1,5 +1,4 @@
 # 2025年最新OpenAI ChatGPT API, Claude Pro购买指南
-![bybit](https://github.com/user-attachments/assets/6377b2e3-39d5-421b-bef8-41c8ad2cb2ce)
 ## 🌟 精要版Tips：
 - Bybit适合海淘党，汇丰合适跨境投资/差旅高频用户，双持更佳！
 
@@ -11,8 +10,6 @@
 - ⚠️ 账单地址在澳洲，部分平台收取10%GST消费税
 ## 邀请码
 ![bybit](https://github.com/user-attachments/assets/2e489dfc-86f6-4846-b110-9c6c87fd044a)
-
-
 
 
 ## 汇丰卓越
