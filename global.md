@@ -9,7 +9,8 @@
 - ✅ 滴滴/拼多多可用
 - ⚠️ 账单地址在澳洲，部分海外平台收取10%GST消费税
 ## 邀请码
-![bybit](https://github.com/user-attachments/assets/2e489dfc-86f6-4846-b110-9c6c87fd044a)
+![cc591701a0236b9a4cf066a30aaedf4](https://github.com/user-attachments/assets/cb992366-57aa-4c58-97e1-5d9dd9099e5c)
+
 
 
 ## 汇丰卓越
@@ -22,7 +23,7 @@
 - 汇丰中国开立30天后，在汇丰美国官网用申请办理，大陆身份即可，无需美签 https://internationalservices.hsbc.com/zh-cn/services/ico/ntb/where-to-open/
 - 汇丰美国开户完成会寄送卡片，可以打客服要求DHL寄送
 - 激活汇丰美国后，在汇丰中国网上银行绑定汇丰美国，即可实现global transfer
-- 每次可以联系大陆客服然后要求转接美国、香港等客服避免长途话费
+- 每次可以联系大陆客服然后要求转接美国、香港等客服，以避免国际长途话费
 ![hsbc](https://github.com/user-attachments/assets/451ca8fc-f12c-4f9b-aab9-4c639d559234)
 
 
